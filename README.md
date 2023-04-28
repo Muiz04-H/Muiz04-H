@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Muiz04-H
+- 👋 Hi, I’m Akanni Muiz 
 - 👀 I’m interested in learning and developing my coding skills
 - 🌱 I’m currently learning software engineering
 - 💞️ I’m looking to collaborate on as many work as possible and to collaborate with like minded people
